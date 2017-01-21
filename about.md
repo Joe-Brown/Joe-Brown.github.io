@@ -12,7 +12,7 @@ I started parkour a few months ago and really enjoyed the basic jumping, running
 
 ### Contact Me 
 
-My School email: joseph.brown@challoner.org
+My School email: joseph.brown@challoners.org
 
 
 
